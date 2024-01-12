@@ -17,7 +17,7 @@ pelo Origamid (https://www.youtube.com/watch?v=hKXOVD2Yrj8).
 
 
 
-![image](https://github.com/carloscamposb/DinoHistory-Blog/assets/108171029/2afaec13-b1e5-4925-b34d-8e23ef241d4d)
+![image](https://github.com/carloscamposb/DinoHistory-Blog-/assets/108171029/66f6d87a-9839-4f30-a600-24ad92b5130b)
 
 
 
