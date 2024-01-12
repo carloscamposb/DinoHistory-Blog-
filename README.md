@@ -14,6 +14,7 @@ pelo Origamid (https://www.youtube.com/watch?v=hKXOVD2Yrj8).
 
 
 ## 🚀 Link da página para melhor visualização
+https://carloscamposb.github.io/DinoHistory-Blog-/
 
 
 
